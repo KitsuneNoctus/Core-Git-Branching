@@ -10,7 +10,7 @@ Behind it, he finds a magical world of unicorns living in perfect peace and harm
 
 George woke to the sound of traffic, the sky was gray.
 After his typical breakfast of toast and an egg he left for school.
-Normally George would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo.
+Normally George would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo, which was run by Zookeeper Braus.
 
 Being on time was not one of George’s specialities today would prove to be no different.
 As he moved slowly.
