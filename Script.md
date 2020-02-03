@@ -23,7 +23,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-George met the Unicorn King who granted him magic powers. Or so he thought but it was really radiation poisoning brought on by what was really a mutant horse from Chernobyl, which later caused George to pass away due to complications.
+George met the Unicorn King who granted him magic powers. Or so he thought but it was really radiation poisoning brought on by what was really a mutant horse from Chernobyl, which later caused George to pass away due to complications. Luckily Mike the friendly Koala needed an eye transplant and George's fresh eyes were just what he needed.
 The end.
 
 ## Cast
